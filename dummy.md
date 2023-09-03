@@ -1,0 +1,2 @@
+
+today, after a long time i'm ashamed of my self. my fucking idiot friend did something as expected from him. Till from the start i was correct about him. He's a complete idiot, he deserves a best idiot of the year award. I can't even tell what he did just today, but from now on i'm not gonna trust him a bit not a single bit. Not him and not anybody or anyone. It's like i lost again today. He's a fuckin dummy.
